@@ -1,2 +1,0 @@
-# -
-Last_mission_
